@@ -2,3 +2,4 @@
 - :zzz: Siga seu sonho,continue dormindo
 - :sparkles: Sou de Pitanga 
 - ♨️ Segue nois no insta @Stipp_ana
+-Pecuaria por amor :money:
